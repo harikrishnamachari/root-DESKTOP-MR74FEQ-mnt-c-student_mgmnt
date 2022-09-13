@@ -1,0 +1,1 @@
+# root-DESKTOP-MR74FEQ-mnt-c-student_mgmnt
